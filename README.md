@@ -1,4 +1,4 @@
-Olá, sou @sasabrina22
+Olá, sou Sabrina de Oliveira Panullo 👋🏻
 - 👀 Estou interessado em aprender diversas técnologias existentes.
 - 🌱 Atualmente estou aprendendo muito conteúdo novo em meu curso.
 - 💞️ Procuro colaborar em sempre melhorar no que eu posso.
